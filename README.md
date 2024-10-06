@@ -6,4 +6,4 @@
 - 📫 How to reach me: toddweym@gmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I'm Belgian 🍺
--🫡 my real name is Todd 
+- 🫡 my real name is Todd 
